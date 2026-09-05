@@ -11,3 +11,7 @@
  [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S :TWIXXEL
 
 [That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THATMOB
+
+[@Gatita-here](https://github.com/Gatita-here)'s HeavyFictkin'S / kin'S : GROXMC
+
+[@Ilove-him](https://github.com/Ilove-him)'s HeavyFictkin'S / kin'S : MAPICC
