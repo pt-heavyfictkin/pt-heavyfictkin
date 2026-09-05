@@ -27,7 +27,7 @@
 
 ✧ [@Gatita-here](https://github.com/Gatita-here)'s HeavyFictkin'S / kin'S : GROXMC !!
 
-✧ [@Ilove-him](https://github.com/Ilove-him)'s HeavyFictkin'S / kin'S : MAPICC !!
+✧ [@Ilove-him](https://github.com/Ilove-him)'s HeavyFictkin'S / kin'S : WIFIES !!
 
 ✧ [@sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDEMC !!
 
@@ -50,3 +50,17 @@
 ✧ [@Chemicalshot](https://github.com/Chemicalshot)B's HeavyFictkin'S / kin'S : WEMMBU !!
 
 ✧ [@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (GARN47) !!
+
+[@Aspenolia](https://github.com/Aspenolia)'s HeavyFictkin'S / kin'S : AZURE WRATH (ASPEN) !!
+
+[@Jeverus](https://github.com/Jeverus)'s HeavyFictkin'S / kin'S : SLASHER (FORSAKEN) !!
+
+[@kniferrific](https://github.com/kniferrific)'s HeavyFictkin'S / kin'S : ItzskeetXD662 (ARG) !!
+
+[@HuaCh3ngzhu](https://github.com/HuaCh3ngzhu)'s HeavyFictkin'S / kin'S : GALE CLEVEN !!
+
+[@tangopawsz](https://github.com/tangopawsz)'s HeavyFictkin'S / kin'S : AJA TARRON !!
+
+[@mandale-net](https://github.com/mandale-net)'s HeavyFictkin'S / kin'S : FLOWERY (DELTARUNE) !!
+
+[@thedarklrd](https://github.com/thedarklrd)'s HeavyFictkin'S / kin'S : GREEN (AVA/AVM) !!
