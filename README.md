@@ -1,19 +1,27 @@
 ![Image](https://raw.githubusercontent.com/pt-heavyfictkin/pt-heavyfictkin/78febb95fdc77a6c1dcc17ac892cdfc781a3f230/Ba%C5%9Fl%C4%B1ks%C4%B1z104.png)
-    ｡⁠*ﾟ I was inspired by every1! ✧
 
-✧ ♡ special thanks : [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)
+,. # * ｡⁠*ﾟI was inspired by every1! ✧⁠ノ
+
+✧ ♡ ⁠ノ special thanks : [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)
 
 ✧ Update date : every day ! ｡⁠*ﾟ
+
 ! only on weekends after school opens !
+
+✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ⁠ノ
+
+✧If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
+
+✧ I think this account will be permanent for a long time if there are no problems ! ^^ . # ⁠ノ
 
 ![Image](https://github.com/pt-heavyfictkin/pt-heavyfictkin/blob/5104b79983aa639ab53f3c47e732dee974835143/Ba%C5%9Fl%C4%B1ks%C4%B1z103.png)
 
 
- ✧ PONY TOWN HEAVYFICTKIN'S: ｡⁠*ﾟ
+ ✧ PONY TOWN HEAVYFICTKIN'S: ｡⁠*ﾟ ⁠ノ
 
  ✧ [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S : TWIXXEL !!
 
-✧ [@That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THAT MOB
+✧ [@That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THAT MOB !!
 
 ✧ [@Gatita-here](https://github.com/Gatita-here)'s HeavyFictkin'S / kin'S : GROXMC !!
 
@@ -21,7 +29,7 @@
 
 ✧ [@sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDEMC !!
 
-✧ [@sorrowfulpredict](https://github.com/sorrowfulpredict)'s HeavyFictkin'S / kin'S : 1X1X1X1 (forsaken) !!
+✧ [@sorrowfulpredict](https://github.com/sorrowfulpredict)'s HeavyFictkin'S / kin'S : 1X1X1X1 !!
 
 ✧ [@flowersan02](https://github.com/flowersan02)'s HeavyFictkin'S / kin'S : ELLIOT !!
 
@@ -39,4 +47,4 @@
 
 ✧ [@Chemicalshot](https://github.com/Chemicalshot)B's HeavyFictkin'S / kin'S : WEMMBU !!
 
-✧ [@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (garn47) !!
+✧ [@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (GARN47) !!
