@@ -28,5 +28,5 @@
 
 [@TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : PARROTX2 
 
-[@DEBTHVERIFIED](https://github.com/DEBTHVERIFIED)Twixxel-Lessgo 's HeavyFictkin'S / kin'S : MAFIOSO
+[@DEBTHVERIFIED](https://github.com/DEBTHVERIFIED)'s HeavyFictkin'S / kin'S : MAFIOSO
 
