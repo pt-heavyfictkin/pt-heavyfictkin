@@ -8,7 +8,7 @@
 
  ✧ PONY TOWN HEAVYFICTKIN'S: 
 
- [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S :TWIXXEL
+ [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S : TWIXXEL
 
 [@That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THATMOB
 
@@ -30,3 +30,10 @@
 
 [@DEBTHVERIFIED](https://github.com/DEBTHVERIFIED)'s HeavyFictkin'S / kin'S : MAFIOSO
 
+[@twottimey](https://github.com/twottimey)'s HeavyFictkin'S / kin'S : TWO TIME
+
+[@VArtfultrust](https://github.com/VArtfultrust)'s HeavyFictkin'S / kin'S : EGG CHAN
+
+[@Chemicalshot](https://github.com/Chemicalshot)B's HeavyFictkin'S / kin'S : WEMMBU
+
+[@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (garn47)
