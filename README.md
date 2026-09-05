@@ -18,3 +18,4 @@
 
 [@sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDE
 
+[@sorrowfulpredict](https://github.com/sorrowfulpredict)'s HeavyFictkin'S / kin'S : 1X1X1X1 (forsaken)
