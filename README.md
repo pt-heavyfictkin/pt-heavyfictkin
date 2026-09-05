@@ -51,17 +51,17 @@
 
 ✧ [@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (GARN47) !!
 
-[@Aspenolia](https://github.com/Aspenolia)'s HeavyFictkin'S / kin'S : AZURE WRATH (ASPEN) !!
+✧ [@Aspenolia](https://github.com/Aspenolia)'s HeavyFictkin'S / kin'S : AZURE WRATH (ASPEN) !!
 
-[@Jeverus](https://github.com/Jeverus)'s HeavyFictkin'S / kin'S : SLASHER (FORSAKEN) !!
+✧ [@Jeverus](https://github.com/Jeverus)'s HeavyFictkin'S / kin'S : SLASHER (FORSAKEN) !!
 
-[@kniferrific](https://github.com/kniferrific)'s HeavyFictkin'S / kin'S : ItzskeetXD662 (ARG) !!
+✧ [@kniferrific](https://github.com/kniferrific)'s HeavyFictkin'S / kin'S : ItzskeetXD662 (ARG) !!
 
-[@HuaCh3ngzhu](https://github.com/HuaCh3ngzhu)'s HeavyFictkin'S / kin'S : GALE CLEVEN !!
+✧ [@HuaCh3ngzhu](https://github.com/HuaCh3ngzhu)'s HeavyFictkin'S / kin'S : GALE CLEVEN !!
 
-[@tangopawsz](https://github.com/tangopawsz)'s HeavyFictkin'S / kin'S : AJA TARRON !!
+✧ [@tangopawsz](https://github.com/tangopawsz)'s HeavyFictkin'S / kin'S : AJA TARRON !!
 
-[@mandale-net](https://github.com/mandale-net)'s HeavyFictkin'S / kin'S : FLOWERY (DELTARUNE) !!
+✧ [@mandale-net](https://github.com/mandale-net)'s HeavyFictkin'S / kin'S : FLOWERY (DELTARUNE) !!
 
 [@thedarklrd](https://github.com/thedarklrd)'s HeavyFictkin'S / kin'S : GREEN (AVA/AVM) !!
 
