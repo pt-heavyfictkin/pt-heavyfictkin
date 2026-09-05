@@ -19,3 +19,12 @@
 [@sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDE
 
 [@sorrowfulpredict](https://github.com/sorrowfulpredict)'s HeavyFictkin'S / kin'S : 1X1X1X1 (forsaken)
+
+[@flowersan02](https://github.com/flowersan02)'s HeavyFictkin'S / kin'S : ELLIOT
+
+[@AcxerSonnellino](https://github.com/AcxerSonnellino)'s HeavyFictkin'S / kin'S : GUEST1337
+
+[@Gamblersi](https://github.com/Gamblersi)'s HeavyFictkin'S / kin'S : CHANCE 
+
+
+
