@@ -66,3 +66,5 @@
 ✧ [@thedarklrd](https://github.com/thedarklrd)'s HeavyFictkin'S / kin'S : GREEN (AVA/AVM) !!
 
 ✧ [@planetlordd](https://github.com/planetlordd)'s HeavyFictkin'S / kin'S : PLANETLORD !!
+
+✧ [@bannysuperman](https://github.com/bannysuperman)'s HeavyFictkin'S / kin'S : CLARK KENT !!
