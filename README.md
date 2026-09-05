@@ -16,6 +16,6 @@
 
 [@Ilove-him](https://github.com/Ilove-him)'s HeavyFictkin'S / kin'S : MAPICC
 
-[sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDE
+[@sealsoro](https://github.com/sealsoro)'s HeavyFictkin'S / kin'S : FROGGYDUDE
 
 [@sorrowfulpredict](https://github.com/sorrowfulpredict)'s HeavyFictkin'S / kin'S : 1X1X1X1 (forsaken)
