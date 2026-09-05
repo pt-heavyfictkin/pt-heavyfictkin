@@ -26,5 +26,7 @@
 
 [@Gamblersi](https://github.com/Gamblersi)'s HeavyFictkin'S / kin'S : CHANCE 
 
+[@TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : PARROTX2 
+
 
 
