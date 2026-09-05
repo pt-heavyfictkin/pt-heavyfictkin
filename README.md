@@ -8,4 +8,6 @@
 
  ✧ PONY TOWN HEAVYFICTKIN'S: 
 
- [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S : Twixxel
+ [@Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S :TWIXXEL
+
+[That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THATMOB
