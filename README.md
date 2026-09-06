@@ -68,3 +68,5 @@
 ✧ [@planetlordd](https://github.com/planetlordd)'s HeavyFictkin'S / kin'S : PLANETLORD !!
 
 ✧ [@bannysuperman](https://github.com/bannysuperman)'s HeavyFictkin'S / kin'S : CLARK KENT !!
+
+✧ [@Yoshida-zawa](https://github.com/Yoshida-zawa)'s HeavyFictkin'S / kin'S : IZUKU MIDORIYAS !!
