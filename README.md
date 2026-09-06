@@ -12,11 +12,13 @@
 
 ✧ Please suggest just one character, either for yourself or someone else !
 
-✧ I seem to be confusing some fandoms, please indicate where the character is from in parentheses !! 
+✧ I seem to be confusing some fandoms, please indicate where the character is from in parentheses !!  ｡⁠*ﾟ ⁠ノ
 
 ---> " hi I nominate myself/someone git-...... (character name) from (.....) " // similar to this !! 
 
 ✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ⁠ノ
+
+✧ If I haven't added you, it means the character is already taken; otherwise, I read all the messages over and over again !!!!  ｡⁠*ﾟ ⁠ノ
 
 ✧If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
 
