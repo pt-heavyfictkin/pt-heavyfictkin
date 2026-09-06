@@ -1,4 +1,4 @@
-![Image](https://raw.githubusercontent.com/pt-heavyfictkin/pt-heavyfictkin/78febb95fdc77a6c1dcc17ac892cdfc781a3f230/Ba%C5%9Fl%C4%B1ks%C4%B1z104.png)
+aw![Image](https://raw.githubusercontent.com/pt-heavyfictkin/pt-heavyfictkin/78febb95fdc77a6c1dcc17ac892cdfc781a3f230/Ba%C5%9Fl%C4%B1ks%C4%B1z104.png)
 
 ,. # * ｡⁠*ﾟI was inspired by every1! ✧⁠ノ
 
@@ -71,8 +71,36 @@
 
 ✧ [@Yoshida-zawa](https://github.com/Yoshida-zawa)'s HeavyFictkin'S / kin'S : IZUKU MIDORIYAS !!
 
-✧ [@That45](https://github.com/That45)'s HeavyFictkin'S / kin'S : MAX DESING
+✧ [@That45](https://github.com/That45)'s HeavyFictkin'S / kin'S : MAX DESING !!
 
-✧ [@glitter2000](https://github.com/glitter2000)'s HeavyFictkin'S / kin'S : GRAY SPRUNKI
+✧ [@glitter2000](https://github.com/glitter2000)'s HeavyFictkin'S / kin'S : GRAY SPRUNKI !!
 
-I'm very busy today, I'll write to everyone tonight. My internet is very bad, so it didn't save what I wrote !! sorriii :<
+✧ [@K1R5MM5N](https://github.com/K1R5MM5N)'s HeavyFictkin'S / kin'S : KIRAMMAN !!
+
+✧ [@c-utesy](https://github.com/c-utesy)'s HeavyFictkin'S / kin'S : THE DEVIN !!
+
+✧ [@electrifypink](https://github.com/electrifypink)'s HeavyFictkin'S / kin'S : PURSUER (DOD) !!
+
+✧ [@silly-doctom](https://github.com/silly-doctom)'s HeavyFictkin'S / kin'S : OPPERHEMIER !!
+
+✧ [@Mayumixx](https://github.com/Mayumixx)'s HeavyFictkin'S / kin'S : TIFA LOCKHART !!
+
+✧ [@drfunkbeat](https://github.com/drfunkbeat)'s HeavyFictkin'S / kin'S : M4TT_WAZHERE (ARG) !!
+
+✧ [@MASQUERADE-PARTY](https://github.com/MASQUERADE-PARTY)'s HeavyFictkin'S / kin'S : PHANTOM AMONG US !!
+
+✧ [@friendlyspiderr](https://github.com/friendlyspiderr)'s HeavyFictkin'S / kin'S : PETER PARKER !!
+
+✧ [@](https://github.com/)'s HeavyFictkin'S / kin'S : INSPECTOR LEE (RUSH HOUR) !!
+
+✧ [@monachgrievings](https://github.com/monachgrievings)'s HeavyFictkin'S / kin'S :  SONIC THE HEDGEHOG !!
+
+✧ [@galacticlegendd](https://github.com/galacticlegendd)'s HeavyFictkin'S / kin'S : REINHARD (LOTGH) !!
+
+✧ [@revolverammos](https://github.com/revolverammos)'s HeavyFictkin'S / kin'S : GUY CRIMSON !!
+
+✧ [@chodark-tco](https://github.com/chodark-tco)'s HeavyFictkin'S / kin'S : TCO (ALAN BECKER) !!
+
+✧ [@disorderlyfashion](https://github.com/disorderlyfashion)'s HeavyFictkin'S / kin'S : BLIT20 (HELLUVA BOSS) !!
+
+✧ [@nnyanruto](https://github.com/nnyanruto)'s HeavyFictkin'S / kin'S : NARUTO UZUMAKI !!
