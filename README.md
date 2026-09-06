@@ -61,7 +61,7 @@
 
 ✧ [@tangopawsz](https://github.com/tangopawsz)'s HeavyFictkin'S / kin'S : AJA TARRON !!
 
-✧ [@mandale-net](https://github.com/mandale-net)'s HeavyFictkin'S / kin'S : FLOWERY (DELTARUNE) !!
+✧ [@mandela-net](https://github.com/mandale-net)'s HeavyFictkin'S / kin'S : FLOWERY (DELTARUNE) !!
 
 ✧ [@thedarklrd](https://github.com/thedarklrd)'s HeavyFictkin'S / kin'S : GREEN (AVA/AVM) !!
 
