@@ -8,6 +8,14 @@
 
 ! only on weekends after school opens !
 
+✧ If yu were previously on this list and then removed, I have been informed that yu are a problematic individual !
+
+✧ Please suggest just one character, either for yourself or someone else !
+
+✧ I seem to be confusing some fandoms, please indicate where the character is from in parentheses !! 
+
+---> " hi I nominate myself/someone git-...... (character name) from (.....) " // similar to this !! 
+
 ✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ⁠ノ
 
 ✧If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
@@ -46,8 +54,6 @@
 ✧ [@twottimey](https://github.com/twottimey)'s HeavyFictkin'S / kin'S : TWO TIME !!
 
 ✧ [@VArtfultrust](https://github.com/VArtfultrust)'s HeavyFictkin'S / kin'S : EGG CHAN !!
-
-✧ [@Chemicalshot](https://github.com/Chemicalshot)B's HeavyFictkin'S / kin'S : WEMMBU !!
 
 ✧ [@OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : CARR (GARN47) !!
 
