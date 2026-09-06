@@ -74,3 +74,5 @@
 ✧ [@That45](https://github.com/That45)'s HeavyFictkin'S / kin'S : MAX DESING
 
 ✧ [@glitter2000](https://github.com/glitter2000)'s HeavyFictkin'S / kin'S : GRAY SPRUNKI
+
+I'm very busy today, I'll write to everyone tonight. My internet is very bad, so it didn't save what I wrote !! sorriii :<
