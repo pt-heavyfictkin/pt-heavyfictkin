@@ -91,7 +91,7 @@
 
 ✧ [@friendlyspiderr](https://github.com/friendlyspiderr)'s HeavyFictkin'S / kin'S : PETER PARKER !!
 
-✧ [@](https://github.com/)'s HeavyFictkin'S / kin'S : INSPECTOR LEE (RUSH HOUR) !!
+✧ [@denguemon](https://github.com/denguemon)'s HeavyFictkin'S / kin'S : INSPECTOR LEE (RUSH HOUR) !!
 
 ✧ [@monachgrievings](https://github.com/monachgrievings)'s HeavyFictkin'S / kin'S :  SONIC THE HEDGEHOG !!
 
