@@ -112,3 +112,21 @@
 ✧ [@disorderlyfashion](https://github.com/disorderlyfashion)'s HeavyFictkin'S / kin'S : BLIT20 (HELLUVA BOSS) !!
 
 ✧ [@nnyanruto](https://github.com/nnyanruto)'s HeavyFictkin'S / kin'S : NARUTO UZUMAKI !!
+
+✧ [@itrap-2245](https://github.com/itrap-2245)'s HeavyFictkin'S / kin'S : ITRAPPED !!
+
+✧ [@robinzbandana](https://github.com/robinzbandana)'s HeavyFictkin'S / kin'S : LUIS SUAREZ (FOOTBALL) !!
+
+✧ [@0SEVN7](https://github.com/0SEVN7)'s HeavyFictkin'S / kin'S : 007N7 (FORSAKEN) !!
+
+✧ [@puphacker](https://github.com/puphacker)'s HeavyFictkin'S / kin'S : ENDZONE (LOT) !!
+
+✧ [@tomatosu](https://github.com/tomatosu)'s HeavyFictkin'S / kin'S : SASUKE UCHIHA !!
+
+✧ [@danysoulzzZ](https://github.com/danysoulzzZ)'s HeavyFictkin'S / kin'S : VILLE VALO !!
+
+✧ [@livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY BFDI !!
+
+✧ [@deviousspoke](https://github.com/deviousspoke)'s HeavyFictkin'S / kin'S : SPOKE IS HERE !!
+
+✧ [@dr-vanta](https://github.com/dr-vanta)'s HeavyFictkin'S / kin'S : DR VANTA !!
