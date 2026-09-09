@@ -107,7 +107,7 @@
 
 ✧ [revolverammos](https://github.com/revolverammos)'s HeavyFictkin'S / kin'S : GUY CRIMSON !!
 
-✧ [chodark-tco](https://github.com/chodark-tco)'s HeavyFictkin'S / kin'S : TCO (ALAN BECKER) !!
+✧ [chodark](https://github.com/chodark-tco)'s HeavyFictkin'S / kin'S : TCO (ALAN BECKER) !!
 
 ✧ [disorderlyfashion](https://github.com/disorderlyfashion)'s HeavyFictkin'S / kin'S : BLIT20 (HELLUVA BOSS) !!
 
@@ -130,3 +130,35 @@
 ✧ [deviousspoke](https://github.com/deviousspoke)'s HeavyFictkin'S / kin'S : SPOKE IS HERE !!
 
 ✧ [dr-vanta](https://github.com/dr-vanta)'s HeavyFictkin'S / kin'S : DR VANTA !!
+
+✧ [dol9hinn](https://github.com/dol9hinn)'s HeavyFictkin'S / kin'S : DOL9HIN !!
+
+✧ [](https://github.com/aeszz)'s HeavyFictkin'S / kin'S : SEBASTIAN SALLOW (HL) !!
+
+✧ [Cannibalsobsession](https://github.com/Cannibalsobsession)'s HeavyFictkin'S / kin'S : POPPY !!
+
+✧ [C-I37](https://github.com/C-I37)'s HeavyFictkin'S / kin'S : MIAMI MORTY (PM) !!
+
+✧ [prizeflush](https://github.com/prizeflush)'s HeavyFictkin'S / kin'S : ST PETER (HH) !!
+
+✧ [casino-flush](https://github.com/casino-flush)'s HeavyFictkin'S / kin'S : HABIT (EMH) !!
+
+✧ [doomed2](https://github.com/doomed2)'s HeavyFictkin'S / kin'S : JACK O MOON (TSAMS) !!
+
+✧ [Blossoming-Truth](https://github.com/Blossoming-Truth)'s HeavyFictkin'S / kin'S : MONIKA !!
+
+✧ [vamplrism](https://github.com/vamplrism)'s HeavyFictkin'S / kin'S : KRIS (DELTARUNE) !!
+
+✧ [ratV4mp](https://github.com/ratV4mp)'s HeavyFictkin'S / kin'S : MADOKA KANAME (PMMM) !!
+
+✧ [O-Dembele10](https://github.com/O-Dembele10)'s HeavyFictkin'S / kin'S : MICHAEL OLISE (FOOTBALL) !!
+
+✧ [livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY BFDI
+
+✧ [zyvism](https://github.com/zyvism)'s HeavyFictkin'S / kin'S : LOVE SHOT (DOD) !!
+
+✧ [tragicburn](https://github.com/tragicburn)'s HeavyFictkin'S / kin'S : CAPTAIN RED !!
+
+✧ [M1s0thefox](https://github.com/M1s0thefox)'s HeavyFictkin'S / kin'S : HACKER C00LKID !!
+
+✧ [sspacedountz](https://github.com/sspacedountz)'s HeavyFictkin'S / kin'S : SLINGSHOT (PHIGHTING) !!
