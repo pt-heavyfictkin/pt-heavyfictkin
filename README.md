@@ -160,3 +160,5 @@
 ✧ [M1s0thefox](https://github.com/M1s0thefox)'s HeavyFictkin'S / kin'S : HACKER C00LKID !!
 
 ✧ [sspacedountz](https://github.com/sspacedountz)'s HeavyFictkin'S / kin'S : SLINGSHOT (PHIGHTING) !!
+
+✧ [TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : ASHSSWAG 
