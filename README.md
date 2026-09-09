@@ -153,8 +153,6 @@
 
 ✧ [O-Dembele10](https://github.com/O-Dembele10)'s HeavyFictkin'S / kin'S : MICHAEL OLISE (FOOTBALL) !!
 
-✧ [livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY BFDI
-
 ✧ [zyvism](https://github.com/zyvism)'s HeavyFictkin'S / kin'S : LOVE SHOT (DOD) !!
 
 ✧ [tragicburn](https://github.com/tragicburn)'s HeavyFictkin'S / kin'S : CAPTAIN RED !!
