@@ -8,17 +8,17 @@
 
 ! only on weekends after school opens !
 
-✧ If yu were previously on this list and then removed, I have been informed that yu are a problematic individual !
+✧I'm so sorry I'm very busy these days and I can't continue right now I'm really tired 😴 I'll continue tonight !!
 
-✧ Please suggest just one character, either for yourself or someone else !
+✧ If you were previously on this list and then removed, I have been informed that yu are a problematic individual !
+
+✧ (Friday September 11) From today onwards you can add more characters even if they are already in the list !
 
 ✧ I seem to be confusing some fandoms, please indicate where the character is from in parentheses !!  ｡⁠*ﾟ ⁠ノ
 
 ---> " hi I nominate myself/someone git-...... (character name) from (.....) " // similar to this !! 
 
-✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ⁠ノ
-
-✧ If I haven't added you, it means the character is already taken; otherwise, I read all the messages over and over again !!!!  ｡⁠*ﾟ ⁠ノ
+✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ
 
 ✧If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
 
@@ -133,7 +133,7 @@
 
 ✧ [dol9hinn](https://github.com/dol9hinn)'s HeavyFictkin'S / kin'S : DOL9HIN !!
 
-✧ [](https://github.com/aeszz)'s HeavyFictkin'S / kin'S : SEBASTIAN SALLOW (HL) !!
+✧ [aeszz](https://github.com/aeszz)'s HeavyFictkin'S / kin'S : SEBASTIAN SALLOW (HL) !!
 
 ✧ [Cannibalsobsession](https://github.com/Cannibalsobsession)'s HeavyFictkin'S / kin'S : POPPY !!
 
@@ -161,4 +161,26 @@
 
 ✧ [sspacedountz](https://github.com/sspacedountz)'s HeavyFictkin'S / kin'S : SLINGSHOT (PHIGHTING) !!
 
-✧ [TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : ASHSSWAG 
+✧ [TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : ASHSSWAG !!
+
+✧ [Doxdxo](https://github.com/Doxdxo)'s HeavyFictkin'S / kin'S : SAIKI KUSUO (TDLOSK) !!
+
+✧ [andreslopper](https://github.com/andreslopper)'s HeavyFictkin'S / kin'S : TERROR E-4 (BLUE HUMAN) !!
+
+✧ [RE0-MIKAGE](https://github.com/RE0-MIKAGE)'s HeavyFictkin'S / kin'S : REO MIKAGES !!
+
+✧ [obsessedgojo](https://github.com/obsessedgojo)'s HeavyFictkin'S / kin'S : DABI/TOUYA TODOROKI (MHA) !!
+
+✧ [livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY !!
+
+✧ [amseiii](https://github.com/amseiii)'s HeavyFictkin'S / kin'S : TAILS , AMY , CREAM & BLAZE !!
+
+✧ [sera741](https://github.com/sera741)'s HeavyFictkin'S / kin'S : GRIEFER (BLOCK TALES) !!
+
+✧ [OlgaSinxer](https://github.com/OlgaSinxer)'s HeavyFictkin'S / kin'S : BEATZZPURMINOTE !!
+
+✧ [Nadd-nadd](https://github.com/Nadd-nadd)'s HeavyFictkin'S / kin'S : NARRATOR (FIGHT CLUB) !! 
+
+✧ [Uictim](https://github.com/Uictim)'s HeavyFictkin'S / kin'S : TDL (ALAN BECKER) !!
+
+
