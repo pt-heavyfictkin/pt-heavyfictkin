@@ -4,11 +4,7 @@
 
 ✧ ♡ ⁠ノ special thanks : [Twixxel-LessGo](https://github.com/Twixxel-LessGo)
 
-✧ Update date : every day ! ｡⁠*ﾟ
-
-! only on weekends after school opens !
-
-✧I'm so sorry I'm very busy these days and I can't continue right now I'm really tired 😴 I'll continue tonight !!
+✧ Update date : Friday or Saturday !｡⁠*ﾟ
 
 ✧ If you were previously on this list and then removed, I have been informed that yu are a problematic individual !
 
@@ -183,4 +179,29 @@
 
 ✧ [Uictim](https://github.com/Uictim)'s HeavyFictkin'S / kin'S : TDL (ALAN BECKER) !!
 
+✧ [ohaiyokaiyo](https://github.com/ohaiyokaiyo)'s HeavyFictkin'S / kin'S : STRIDER (HOMESTUCK) !!
+
+✧ [wolfcutiee](https://github.com/wolfcutiee)'s HeavyFictkin'S / kin'S : MORTY (RICK N MORTY) !!
+
+✧ [Corintheuss](https://github.com/Corintheuss)'s HeavyFictkin'S / kin'S : GOJO !!
+
+✧ [PESKYMAILMAN](https://github.com/PESKYMAILMAN)'s HeavyFictkin'S / kin'S : SPAMTON (DELTARUNE) !!
+
+✧ [URAHARA-KI](https://github.com/URAHARA-KI)'s HeavyFictkin'S / kin'S : RED-HAIRED SHANKS (ONE PIECE) !!
+
+✧ [mitchimuffin](https://github.com/mitchimuffin)'s HeavyFictkin'S / kin'S : JINX (ARCANE) !!
+
+✧ [carcrashxoxo](https://github.com/carcrashxoxo)'s HeavyFictkin'S / kin'S : NOOB (FORSAKEN) !!
+
+✧ [devilheld](https://github.com/devilheld)'s HeavyFictkin'S / kin'S : RARITY (MLP) !!
+
+✧ [livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY (BFDI) !! 
+
+✧ [sournoxious](https://github.com/sournoxious)'s HeavyFictkin'S / kin'S : DEADPOOL !!
+
+✧ [sir-chloe](https://github.com/sir-chloe)'s HeavyFictkin'S / kin'S : ASTRO (DW) !!
+
+✧ [CosmoThePastryy](https://github.com/CosmoThePastryy)'s HeavyFictkin'S / kin'S : COSMO THE PASTRY (DW) !!
+
+✧ [ShellzyFossilzianz](https://github.com/ShellzyFossilzianz)'s HeavyFictkin'S / kin'S : XFHOV (BFDI) !!
 
