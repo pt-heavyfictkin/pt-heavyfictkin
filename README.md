@@ -139,7 +139,7 @@
 
 ✧ [casino-flush](https://github.com/casino-flush)'s HeavyFictkin'S / kin'S : HABIT (EMH) !!
 
-✧ [doomed2](https://github.com/doomed2)'s HeavyFictkin'S / kin'S : JACK O MOON (TSAMS) !!
+✧ [doomed2suffer](https://github.com/doomed2suffer)'s HeavyFictkin'S / kin'S : JACK O MOON (TSAMS) !!
 
 ✧ [Blossoming-Truth](https://github.com/Blossoming-Truth)'s HeavyFictkin'S / kin'S : MONIKA !!
 
@@ -205,3 +205,14 @@
 
 ✧ [ShellzyFossilzianz](https://github.com/ShellzyFossilzianz)'s HeavyFictkin'S / kin'S : XFHOV (BFDI) !!
 
+✧ [angel-iivan](https://github.com/angel-iivan)'s HeavyFictkin'S / kin'S : ASTILL (ALNST) !! 
+
+✧ [abbyyzzz](https://github.com/abbyyzzz)'s HeavyFictkin'S / kin'S : REITA TORITSUKA (TDLOS) !!
+
+✧ [0-Dembele10](https://github.com/0-Dembele10)'s HeavyFictkin'S / kin'S : MICHAEL OLISE !! 
+
+✧ [burningsins](https://github.com/burningsins)'s HeavyFictkin'S / kin'S : HAWKS (MY HERO ACADEMIA) !!
+
+✧ [DOR-fic](https://github.com/DOR-fic)'s HeavyFictkin'S / kin'S : METAL SONIC !!
+
+✧ [hoobae](https://github.com/hoobae)'s HeavyFictkin'S / kin'S : MIZI (ALNST) !!
