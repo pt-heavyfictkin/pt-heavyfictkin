@@ -16,7 +16,9 @@
 
 ✧ I don't add problematic people ! If I added it, lemme know why so I can delete they once I find out ! ｡⁠*ﾟ
 
-✧If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
+✧ I'm not re-adding characters that have already been added If I have please let me know  !!
+
+✧ If you are nominating someone else or yourself please write it on my strawpage Don't forget your Github !!!
 
 ✧ I think this account will be permanent for a long time if there are no problems ! ^^ . # ⁠ノ
 
@@ -31,7 +33,7 @@
 
 ✧ [That-M0b](https://github.com/That-M0b)'s HeavyFictkin'S / kin'S : THAT MOB !!
 
-✧ [Gatita-here](https://github.com/Gatita-here)'s HeavyFictkin'S / kin'S : GROXMC !!
+✧ [Gatita-here](https://github.com/Gatita-here)'s HeavyFictkin'S / kin'S : GROXMC & MAPICC !!
 
 ✧ [Ilove-him](https://github.com/Ilove-him)'s HeavyFictkin'S / kin'S : WIFIES !!
 
@@ -181,7 +183,7 @@
 
 ✧ [ohaiyokaiyo](https://github.com/ohaiyokaiyo)'s HeavyFictkin'S / kin'S : STRIDER (HOMESTUCK) !!
 
-✧ [wolfcutiee](https://github.com/wolfcutiee)'s HeavyFictkin'S / kin'S : MORTY (RICK N MORTY) !!
+✧ [wolfcutiee](https://github.com/wolfcutiee)'s HeavyFictkin'S / kin'S : MORTY (RICK & MORTY) !!
 
 ✧ [Corintheuss](https://github.com/Corintheuss)'s HeavyFictkin'S / kin'S : GOJO !!
 
@@ -216,3 +218,21 @@
 ✧ [DOR-fic](https://github.com/DOR-fic)'s HeavyFictkin'S / kin'S : METAL SONIC !!
 
 ✧ [hoobae](https://github.com/hoobae)'s HeavyFictkin'S / kin'S : MIZI (ALNST) !!
+
+✧ [kiwiconiccc](https://github.com/kiwiconiccc)'s HeavyFictkin'S / kin'S : GUMBALL & REIGEN !!
+
+✧ [angelicdelusion](https://github.com/angelicdelusion)'s HeavyFictkin'S / kin'S : MINORI HANASATO & ARIA (ZZZ) !! 
+
+✧ [yellowdeltarune](https://github.com/yellowdeltarune)'s HeavyFictkin'S / kin'S : YELLOW (DELTARUNE)
+
+✧ [ddoomclock](https://github.com/ddoomclock)'s HeavyFictkin'S / kin'S : CLOCKWORK (TRA) !!
+
+✧ [kiwiconiccc](https://github.com/kiwiconiccc)'s HeavyFictkin'S / kin'S : MILES MORALES !!
+
+✧ [Sea-shantyyy](https://github.com/Sea-shantyyy)'s HeavyFictkin'S / kin'S : SHEDLETSKY !! 
+
+✧ [Supreme-Angel](https://github.com/Supreme-Angel)'s HeavyFictkin'S / kin'S : GABRIEL (ULTRAKILL) !!
+
+✧ [kazutorawr](https://github.com/kazutorawr)'s HeavyFictkin'S / kin'S : KAZUTORA HANEMIYA !! 
+
+✧ [OHBUNNYBUNNY](https://github.com/OHBUNNYBUNNY)'s HeavyFictkin'S / kin'S : TSC (AVA) & OLD SECRETARY (AHA) !!
