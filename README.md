@@ -47,8 +47,6 @@
 
 ✧ [Gamblersi](https://github.com/Gamblersi)'s HeavyFictkin'S / kin'S : CHANCE !!
 
-✧ [TheHacker7n7](https://github.com/TheHacker7n7)'s HeavyFictkin'S / kin'S : PARROTX2 !!
-
 ✧ [DEBTHVERIFIED](https://github.com/DEBTHVERIFIED)'s HeavyFictkin'S / kin'S : MAFIOSO !!
 
 ✧ [twottimey](https://github.com/twottimey)'s HeavyFictkin'S / kin'S : TWO TIME !!
@@ -147,7 +145,7 @@
 
 ✧ [vamplrism](https://github.com/vamplrism)'s HeavyFictkin'S / kin'S : KRIS (DELTARUNE) !!
 
-✧ [ratV4mp](https://github.com/ratV4mp)'s HeavyFictkin'S / kin'S : MADOKA KANAME (PMMM) !!
+✧ [ratV4mp](https://github.com/ratV4mp)'s HeavyFictkin'S / kin'S : MADOKA KANAME (PMMM) & EMIL MESMER (IDV) !! 
 
 ✧ [O-Dembele10](https://github.com/O-Dembele10)'s HeavyFictkin'S / kin'S : MICHAEL OLISE (FOOTBALL) !!
 
@@ -185,7 +183,7 @@
 
 ✧ [wolfcutiee](https://github.com/wolfcutiee)'s HeavyFictkin'S / kin'S : MORTY (RICK & MORTY) !!
 
-✧ [Corintheuss](https://github.com/Corintheuss)'s HeavyFictkin'S / kin'S : GOJO !!
+✧ [Corintheuss](https://github.com/Corintheuss)'s HeavyFictkin'S / kin'S : GOJO SATORU !!
 
 ✧ [PESKYMAILMAN](https://github.com/PESKYMAILMAN)'s HeavyFictkin'S / kin'S : SPAMTON (DELTARUNE) !!
 
@@ -268,3 +266,47 @@
 ✧ [Heart0fGold](https://github.com/Heart0fGold)'s HeavyFictkin'S / kin'S : ETHAN (POKÉMON) !!
 
 ✧ [fluffpuffzz](https://github.com/fluffpuffzz)'s HeavyFictkin'S / kin'S : HEAD NURSE & INTERN & SUSIE (DELTARUNE) & ZIP (FPE) !!
+
+✧ [letsdosomemagicstuff](https://github.com/letsdosomemagicstuff)'s HeavyFictkin'S / kin'S : INFECTED (REGRETAVATOR) !! 
+
+✧ [wingedcalamity](https://github.com/wingedcalamity)'s HeavyFictkin'S / kin'S : ABSOL (POKÉMON) !!
+
+✧ [R0DRICK-HEFFLEY](https://github.com/R0DRICK-HEFFLEY)'s HeavyFictkin'S / kin'S : MV3 & OP81 (F1) !! 
+
+✧ [SaltyTenshi](https://github.com/SaltyTenshi)'s HeavyFictkin'S / kin'S : TSUMURAKI KOKORO (BANG DREAM) !!
+
+✧ [LACKADAlSlCAL](https://github.com/LACKADAlSlCAL)'s HeavyFictkin'S / kin'S : SPROUT SEEDLY (DW) !!
+
+✧ [puppiepopper](https://github.com/puppiepopper)'s HeavyFictkin'S / kin'S : ISAMU UCHIUMI (THE MIMIC) !!
+
+✧ [DovesofOptimus](https://github.com/DovesofOptimus)'s HeavyFictkin'S / kin'S : OPTIMUS PRIMES !!
+
+✧ [naturalharmoniaa](https://github.com/naturalharmoniaa)'s HeavyFictkin'S / kin'S : NATURAL HARMONIA GROPIUS (POKÉMON) & DAISUKE JUAREZ (MOUTHWASHING) !! 
+
+✧ [theemotionalside](https://github.com/theemotionalside)'s HeavyFictkin'S / kin'S : THE HEART (CCCC) !!
+
+✧ [thesnowillburyme](https://github.com/thesnowillburyme)'s HeavyFictkin'S / kin'S : TRAVIS RAPID !!
+
+✧ [BadTimesWithScar](https://github.comBadTimesWithScar/)'s HeavyFictkin'S / kin'S : GoodTimesWithScar (MCYT) !!
+
+✧ [sejopi](https://github.com/sejopi)'s HeavyFictkin'S / kin'S : NULL (REGRETEVATOR) !! 
+
+✧ [Corintheuss](https://github.com/Corintheuss)'s HeavyFictkin'S / kin'S : CORINTHIAN !!
+
+✧ [lovelydrug](https://github.com/lovelydrug)'s HeavyFictkin'S / kin'S : KENMA (HAIKYUU) & MIZI (ALNST) !!
+
+✧ [placehold7r](https://github.com/placehold7r)'s HeavyFictkin'S / kin'S : YUKI MAEDA (SDA2) !!
+
+✧ [Crxcifiedsklls](https://github.com/Crxcifiedsklls)'s HeavyFictkin'S / kin'S : NEYMAR JUNIOR (FOOTBALL) & DIMAS (GITC) !!
+
+✧ [olisekitty](https://github.com/olisekitty)'s HeavyFictkin'S / kin'S : JAMAL MUSIALA (FOOTBALL) !!
+
+✧ [J0NCAN0N3](https://github.com/J0NCAN0N3)'s HeavyFictkin'S / kin'S : JON (EDDSWORLD) & MIYO (RMA) !!
+
+✧ [Lax1e](https://github.com/Lax1e)'s HeavyFictkin'S / kin'S : MARSHALL THE FIREPUP !!
+
+✧ [z0mbiepup](https://github.com/z0mbiepup)'s HeavyFictkin'S / kin'S : YATTA (DW) !! 
+
+✧ [thirdlotusprince](https://github.com/thirdlotusprince)'s HeavyFictkin'S / kin'S : NEZHA (LMK) !! 
+
+✧ [waverIy](https://github.com/waverIy)'s HeavyFictkin'S / kin'S : TWO-FACE (DC) !!
