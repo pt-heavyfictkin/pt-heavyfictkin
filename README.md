@@ -205,7 +205,7 @@
 
 ✧ [CosmoThePastryy](https://github.com/CosmoThePastryy)'s HeavyFictkin'S / kin'S : COSMO THE PASTRY (DW) !!
 
-✧ [ShellzyFossilzianz](https://github.com/ShellzyFossilzianz)'s HeavyFictkin'S / kin'S : XFHOV (BFDI) !!
+✧ [ShellzyFossilzianz](https://github.com/ShellzyFossilzianz)'s HeavyFictkin'S / kin'S : THREE (XFHOV/BFDI) !!
 
 ✧ [angel-iivan](https://github.com/angel-iivan)'s HeavyFictkin'S / kin'S : ASTILL (ALNST) !! 
 
@@ -236,3 +236,23 @@
 ✧ [kazutorawr](https://github.com/kazutorawr)'s HeavyFictkin'S / kin'S : KAZUTORA HANEMIYA !! 
 
 ✧ [OHBUNNYBUNNY](https://github.com/OHBUNNYBUNNY)'s HeavyFictkin'S / kin'S : TSC (AVA) & OLD SECRETARY (AHA) !!
+
+✧ [chipwhisp](https://github.com/chipwhisp)'s HeavyFictkin'S / kin'S : SPIDERMAN-NOIR !! 
+
+✧ [pupfies](https://github.com/pupfies)'s HeavyFictkin'S / kin'S :  CLONEFIES & EVILFIES !!
+
+✧ [biteofme](https://github.com/biteofme)'s HeavyFictkin'S / kin'S : VOX (HH) !! 
+
+✧ [SukunaXRyomen](https://github.com/SukunaXRyomen)'s HeavyFictkin'S / kin'S : SUKUNA !!
+
+✧ [flaskofvodka](https://github.com/flaskofvodka)'s HeavyFictkin'S / kin'S : TOM (EDDSWORLD) !!
+
+✧ [copperbottoms](https://github.com/copperbottoms)'s HeavyFictkin'S / kin'S : RODNEY COPPERBOTTOM !!
+
+✧ [wikiliusdarling](https://github.com/wikiliusdarling)'s HeavyFictkin'S / kin'S : KARL (GUTS &  BLACKPOWDER) !!
+
+✧ [LlMP-BlZKlT](https://github.com/LlMP-BlZKlT)'s HeavyFictkin'S / kin'S : FRED DURST !!
+
+✧ [kissbow](https://github.com/kissbow)'s HeavyFictkin'S / kin'S : CARL GRIMES !! 
+
+✧ [mgcoiin](https://github.com/mgcoiin)'s HeavyFictkin'S / kin'S : GORO AKECHI !!
