@@ -83,7 +83,7 @@
 
 ✧ [K1R5MM5N](https://github.com/K1R5MM5N)'s HeavyFictkin'S / kin'S : KIRAMMAN !!
 
-✧ [c-utesy](https://github.com/c-utesy)'s HeavyFictkin'S / kin'S : THE DEVIN !!
+✧ [c-utesy](https://github.com/c-utesy)'s HeavyFictkin'S / kin'S : DEVIN WOLF (TMIRB) !!
 
 ✧ [electrifypink](https://github.com/electrifypink)'s HeavyFictkin'S / kin'S : PURSUER (DOD) !!
 
@@ -221,7 +221,7 @@
 
 ✧ [kiwiconiccc](https://github.com/kiwiconiccc)'s HeavyFictkin'S / kin'S : GUMBALL & REIGEN !!
 
-✧ [angelicdelusion](https://github.com/angelicdelusion)'s HeavyFictkin'S / kin'S : MINORI HANASATO & ARIA (ZZZ) !! 
+✧ [angelicdelusion](https://github.com/angelicdelusion)'s HeavyFictkin'S / kin'S : MINORI HANASATO & ARIA (ZZZ) CALLIE & PEARL & AGENT 8 (SPLATOON) !!
 
 ✧ [yellowdeltarune](https://github.com/yellowdeltarune)'s HeavyFictkin'S / kin'S : YELLOW (DELTARUNE)
 
@@ -256,3 +256,15 @@
 ✧ [kissbow](https://github.com/kissbow)'s HeavyFictkin'S / kin'S : CARL GRIMES !! 
 
 ✧ [mgcoiin](https://github.com/mgcoiin)'s HeavyFictkin'S / kin'S : GORO AKECHI !!
+
+✧ [LaffyTaffy-0](https://github.com/LaffyTaffy-0)'s HeavyFictkin'S / kin'S : VENOM DOUGH COOKIE (CRK) !! 
+
+✧ [6odheaded](https://github.com/6odheaded)'s HeavyFictkin'S / kin'S : DAVE STRIDER !!
+
+✧ [Blame-John](https://github.com/Blame-John)'s HeavyFictkin'S / kin'S : TELAMON !! 
+
+✧ [sebvsene](https://github.com/sebvsene)'s HeavyFictkin'S / kin'S : JASON TODD (DC) !! 
+
+✧ [Heart0fGold](https://github.com/Heart0fGold)'s HeavyFictkin'S / kin'S : ETHAN (POKÉMON) !!
+
+✧ [fluffpuffzz](https://github.com/fluffpuffzz)'s HeavyFictkin'S / kin'S : HEAD NURSE & INTERN & SUSIE (DELTARUNE) & ZIP (FPE) !!
