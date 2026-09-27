@@ -121,7 +121,7 @@
 
 ✧ [danysoulzzZ](https://github.com/danysoulzzZ)'s HeavyFictkin'S / kin'S : VILLE VALO !!
 
-✧ [livscent](https://github.com/livscent)'s HeavyFictkin'S / kin'S : LEAFY BFDI !!
+✧ [vaelicies](https://github.com/vaelicies)'s HeavyFictkin'S / kin'S : LEAFY BFDI !!
 
 ✧ [deviousspoke](https://github.com/deviousspoke)'s HeavyFictkin'S / kin'S : SPOKE IS HERE !!
 
