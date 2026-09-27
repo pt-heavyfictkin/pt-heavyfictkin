@@ -27,7 +27,7 @@
 
  ✧ PONY TOWN HEAVYFICTKIN'S: ｡⁠*ﾟ ⁠ノ
 
-![Image](https://github.com/pt-heavyfictkin/pt-heavyfictkin/blob/814db18d6813b24251049a0a68e0374935c63b8a/Ba%C5%9Fl%C4%B1ks%C4%B1z101.png)
+
 
  ✧ [Twixxel-LessGo](https://github.com/Twixxel-LessGo)'s HeavyFictkin'S / kin'S : TWIXXEL !!
 
